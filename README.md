@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jeremiahrgb
 - 👀 im currently learning  ... css and html - 
-- 📫 you can reach me on discord :j3rr3m1ah
+- 📫 you can reach me on discord; agusix
 - 😄 Pronouns: him
-- ⚡ Fun fact: ... i live ina house :>
+
  
